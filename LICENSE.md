@@ -1,4 +1,4 @@
-# 
+# Oficial sandwich attack bot plugins para Mac OS | Mejor sandwich attack bot plugins para PC Windows. Con verificación de aprobación de tokens y estrategias de back-running — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
